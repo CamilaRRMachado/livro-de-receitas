@@ -1,3 +1,3 @@
 # Salada de frago
-**é ruim**
-_pra caralho_
+**maionese**
+_frango_
